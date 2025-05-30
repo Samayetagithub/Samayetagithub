@@ -31,7 +31,7 @@
 - 📫 How to reach me: samayetadas04@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am a huge foodie... and i draw for fun,cook for therapy and code for caffeine .
-- 📄 Know about my experiences "https://drive.google.com/file/d/1FFfDDlgOb68YW1Ndx3bsp9EDVAzRIHSR/view?usp=drivesdk"
+- 📄 Know about my experiences "https://drive.google.com/file/d/1xHrwfhhcKRHE2_4fkZNfXIXoel6lshDT/view?usp=drivesdk"
 <p align="center">
   <img src="https://user-images.githubusercontent.com/48355572/209539106-8e1cbfc6-2f3d-4afd-b96a-890d967dd9ab.png">
 </p>
